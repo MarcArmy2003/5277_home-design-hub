@@ -15,6 +15,24 @@ Wicker, rattan, distressed wood, linen, and galvanized accents give a relaxed, b
 **🧺 Textural Touches:**  
 Think: woven baskets, weathered finishes, and rope details. These elements bring warmth and tactile charm into the space.
 
+## 🎨 Coastal Lanai Palettes
+
+Explore a collection of curated color palettes for designing relaxing, family-friendly, Florida-style outdoor living spaces:
+
+### [🌴 Classic Coastal Palette](https://marcarmy2003.github.io/MarcArmy2003/Coastal_Lanai_Palette.html)
+A timeless mix of seafoam blue, sand beige, and weathered teak—perfect for coastal serenity.
+
+### [☀️ Bright Coastal Palette](https://marcarmy2003.github.io/MarcArmy2003/Bright_Coastal_Lanai_Palette.html)
+Sun-drenched and vibrant—a playful yet beachy vibe with coral, minty teal, and citrus tones.
+
+### [🌀 Coastal Twist Palette](https://marcarmy2003.github.io/MarcArmy2003/Coastal_Twist_Palette.html)
+A bold, unexpected mix: deep fig, sea glass, and citrus cream layered over classic neutrals.
+
+---
+
+Open these on your phone and tap **“Add to Home Screen”** for quick reference while shopping or planning.
+
+
 ---
 
 ## 🛋️ II. Define Your Zones  
